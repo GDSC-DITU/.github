@@ -1,4 +1,4 @@
-## Hi there 👋
+## GDSC DITU,Dehradun,Uttarkhand 👋
 
 <!--
 
